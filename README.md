@@ -1,1 +1,0 @@
-# pradart-termos3-3d
